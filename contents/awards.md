@@ -1,16 +1,19 @@
+### Scholarships
 
-- Outstanding Graduate Award (CUMT), 2025.
+- 2020: Seedling Scholarship, School of Life Sciences, Xiamen University
+- 2020: First-Class Academic Excellence Scholarship, Xiamen University
+- 2020: Academic Innovation Scholarship, Xiamen University
+- 2021: Zhuang Shaohua Scholarship, Xiamen University
+- 2021: First-Class Elite Class Scholarship, School of Life Sciences, Xiamen University
+- 2022: CCB Scholarship, Xiamen University
 
-- National Scholarship for Graduate Student, 2024.
+### Honors
 
-- First-Prize Scholarship (CUMT), 2024.
+- 2021: "Top Ten Singers", School of Life Sciences, Xiamen University
+- 2021: "Outstanding Individual" Honorary Title, School of Life Sciences, Xiamen University
 
-- First-Prize Scholarship (CUMT), 2023.
+### Competition Awards
 
-- Freshman Scholarship (CUMT), 2022.
-
-- Outstanding Graduation Project Award (Jiangsu Province), 2022.
-
-- First-Prize Enterprise Scholarship (CUMT), 2020.
-
-- First-Prize Scholarship (CUMT), 2019.
+- 2019: First Prize (1st Place), 13th "Seedling Cup" Biology Knowledge Competition, Xiamen University
+- 2020: Third Prize, 14th Physics Knowledge Competition, Xiamen University
+- 2021: Special Prize (Top 0.1%), National English Competition for College Students (NECCS), Category
