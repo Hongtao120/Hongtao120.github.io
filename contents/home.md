@@ -4,8 +4,7 @@ He is a Ph.D. student at Tsinghua University and currently a member of Xiaoyu Hu
 
 #### Contact
 
-Email: linht23@tsinghua.edu.cn\
-       linhongtao@westlake.edu.cn
+Email: linht23[at]tsinghua.edu.cn
        
 #### Education
 Ph.D., Basic Medicine, Tsinghua University, 2023—2029.\
