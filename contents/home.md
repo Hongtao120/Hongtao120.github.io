@@ -1,4 +1,4 @@
-[![linhongtao120](https://img.shields.io/badge/linhongtao120-github-blue?logo=github)](https://github.com/linhongtao120)
+[![Hongtao120](https://img.shields.io/badge/Hongtao120-github-blue?logo=github)](https://github.com/Hongtao120)
 
 He is a Ph.D. student at Tsinghua University and currently a member of Xiaoyu Hu's Lab at Westlake University.
 
